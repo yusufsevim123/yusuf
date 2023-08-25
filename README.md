@@ -1,0 +1,2 @@
+# yusuf
+haklılık payım var
